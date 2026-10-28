@@ -10,9 +10,13 @@ In science, this movement from high concentration (crowded) to low concentration
 💧 5 Everyday Examples of Diffusion
 
 • Perfume or Room Spray:When you spray perfume in the corner of a room, the scent molecules are tightly packed together. Over a few minutes, those molecules bounce around and naturally spread through the air until you can smell it on the complete opposite side of the room.
+
 • A Tea Bag in Hot Water:When you drop a tea bag into a mug, the water inside the bag becomes highly concentrated with tea flavors and colors. Without you even stirring it, those tea particles slowly glide out into the clear, surrounding water until the whole mug is uniform.
+
 • Food Coloring in a Glass:Placing a single drop of blue food coloring into water shows diffusion in slow motion. The tight, dark drop slowly blooms and disperses across the glass on its own until all the water turns a consistent, light blue.
+
 • Breathing (Respiration):This happens inside your body every second. When you inhale, your lungs have a high concentration of oxygen. Because your blood has a low concentration of oxygen, the oxygen automatically diffuses right through your lung tissue into your bloodstream.
+
 • Fizzy Soda Going Flat:When you open a bottle of soda, the carbon dioxide gas trapped inside the liquid escapes out into the open air where there is a much lower concentration of that gas, eventually leaving your drink flat.
 
 📝 How to Use the Term "Diffusion"
