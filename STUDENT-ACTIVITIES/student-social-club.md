@@ -1,0 +1,22 @@
+The Campus Activities Board (CAB) is essentially the heartbeat of student life at Central Piedmont. If you consider yourself a social butterfly or want to grow into a major campus leader, CAB is the absolute best engine to make that happen. [1] (https://www.cpcc.edu/student-experience/leadership-and-engagement-opportunities)
+Instead of just attending events, students on the board are the ones who brainstorm, pitch, market, and fully execute them. [1] (https://blogs.cpcc.edu/cpcctoday/2025/08/11/%F0%9F%8E%89-applications-open-for-campus-activities-board/), [2] (https://www.cpcc.edu/student-experience/leadership-and-engagement-opportunities)
+
+How CAB Supercharges Your Growth and Network
+
+• From "Social Butterfly" to Connected Leader: As a CAB member, you aren't just sitting in a meeting room; you are managing the floor at student mixers, hosting movie nights, and running massive trivia and "DeStress Week" events. This puts you directly in front of hundreds of students, making it incredibly easy to build a massive peer network. [1] (https://blogs.cpcc.edu/cpcctoday/tag/campus-activities-board/), [2] (https://www.cpcc.edu/student-experience/clubs-activities), [3] (https://blogs.cpcc.edu/cpcctoday/2025/08/11/%F0%9F%8E%89-applications-open-for-campus-activities-board/)
+• The Perfect Pairing for an Ambassador: If you decide to pursue the Central Piedmont Student Ambassador track, CAB is the perfect sandbox. Ambassadors need to know exactly what is happening on campus to recruit new students. Serving on CAB gives you behind-the-scenes access to the campus pulse, giving you plenty of stories and experiences to share during tours.
+• A Safe Space for New Ideas: CAB values creativity. If you have an idea for a unique campus event—like an immersive game night or a unique creative workshop—the board provides the actual budget, faculty backing, and student team to help you build it from scratch. [1] (https://www.cpcc.edu/student-experience/clubs-activities), [2] (https://blogs.cpcc.edu/cpcctoday/2025/08/11/%F0%9F%8E%89-applications-open-for-campus-activities-board/)
+
+Do They Host Culture, Arts, and International Events?
+
+Yes, heavily. While CAB directly handles massive campus-wide social staples (like Welcome Weeks and holiday trivia), they work hand-in-hand with Student Life and specific student groups to introduce students to diverse cultural experiences. [1] (https://www.cpcc.edu/student-experience/clubs-activities)
+• Cultural Excursions & Food: CAB and Student Life frequently sponsor cultural showcase events. They heavily collaborate with the International Club of Central Piedmont (ICCP), which specializes entirely in international food gatherings, global awareness activities, and cross-cultural friend-making. [1] (https://www.cpcc.edu/student-experience/clubs-activities)
+• Performing Arts & Dance: You will see dynamic performing arts pop-ups throughout the year. For example, Student Life hosts interactive events like National Dance Day breaks featuring multiplayer dance sessions to help students move around and shake off stress between classes. [1] (https://www.cpcc.edu/events/central-campus-national-dance-day)
+• Film & Media: CAB regularly programs Campus Movie Nights. These are designed as free, accessible community events where you can grab snacks, watch films with peers, and hang out afterward to talk about the movie. [1] (https://www.cpcc.edu/student-experience/clubs-activities), [2] (https://www.cpcc.edu/student-experience/leadership-and-engagement-opportunities)
+
+How to Get Involved Right Now
+
+You can find the active roster and application deadlines on the Central Piedmont Leadership and Engagement Hub.
+• Follow Them on Socials: To see what their event execution actually looks like, follow their official student-run profile on Instagram: @cabcentralpiedmont. They post real-time updates, event photos, and application windows there.
+• Drop In on a Meeting: General board meetings are typically held on Fridays from 10:30–11:30 a.m.. [1] (https://blogs.cpcc.edu/cpcctoday/2020/09/09/campus-activities-board-how-can-you-get-involved/), [2] (https://blogs.cpcc.edu/cpcctoday/tag/campus-activities-board/)
+Would you like the direct contact information for the student life coordinator who oversees the Campus Activities Board applications, or would you like to see a list of other active cultural clubs on campus like the International Club?
